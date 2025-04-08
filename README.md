@@ -1,0 +1,1 @@
+Well, I noticed some time ago that webrings are still active and I met one of these webrings called webring.theoldnet.com and I decided to make a site in the style of old sites about one of my favorite franchises and register it in this webring. I hope you enjoy this first and very small project of mine.
